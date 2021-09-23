@@ -1,2 +1,0 @@
-# variedsales.cf
- 
